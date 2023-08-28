@@ -1,0 +1,1 @@
+# TeamSynergy-Collaborative-remote-working-platform-for-cross-functional-teams
